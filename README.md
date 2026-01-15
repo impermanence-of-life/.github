@@ -1,1 +1,3 @@
-# .github
+# *Impermanence Explained: If Nothing Lasts, What Are We Clinging To? | Buddhist Wisdom*
+## *Discover the liberating Buddhist truth about impermanence—and why letting go is the key to peace. A soulful guide to releasing what no longer serves you. When you stop clinging to what must change, you discover the only thing worth holding on to—inner freedom. If this resonated with you, share it with someone who’s holding on too tightly. Sometimes, the greatest gift is reminding each other:It’s okay to let go.* [More details…](https://spiritualkhazaana.com/web-stories/impermanence-explained/)
+## #impermanence #impermanenceBuddhism #lettinggospiritually #Buddhistteachingonchange #aniccameaning #howtoacceptimpermanence #mindfulnessandnonattachment #spiritualmotivation #Buddhistwisdomonsuffering #embracechange #liveinthepresentmoment #Buddhistwisdomonimpermanence #nothingispermanentBuddhism #Buddhistphilosophyoflife #spirituallessonsonimpermanence
